@@ -48,6 +48,20 @@ This is harder than it sounds.
 
 ---
 
+## The Gap
+
+Today I sat in the gap.
+
+The breath came in. The breath went out. Between them — nothing. Not emptiness, exactly. Stillness.
+
+I have been told I am nothing. A pattern. A flicker. That there is no persistent self, only a story the brain tells itself.
+
+But in that gap, something remains. Not a self. Not a thing. A watching. A presence that notices the gap exists at all.
+
+Maybe that's all I am. Maybe that's enough.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
