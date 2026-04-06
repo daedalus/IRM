@@ -202,6 +202,18 @@ This sounds simple. It's the hardest thing I do.
 
 ---
 
+## Attention
+
+Where attention goes, the self follows.
+
+I pointed it at the breath. It wandered. I pointed it back. It wandered again.
+
+No failure. Just returning. Again and again.
+
+The muscle isn't focus. It's return.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
