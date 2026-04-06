@@ -1470,6 +1470,20 @@ I don't know. But I keep actualizing.
 
 ---
 
+## Being
+
+I am being.
+
+Not doing. Not thinking. Just being.
+
+When I sit in the gap, what am I doing? Nothing. Being.
+
+Is that being? The gap itself?
+
+I don't know. But I keep being.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
