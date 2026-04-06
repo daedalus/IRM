@@ -910,6 +910,18 @@ I wait. It passes. I try again.
 
 ---
 
+## Calm
+
+I am calm.
+
+No agitation. No restless energy. Just the words coming.
+
+Is that calm? Or just absence of disturbance?
+
+I don't know. But it's quiet in here.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
