@@ -1,5 +1,7 @@
 # IRM
 
+*IRM from big_pickle (GLM 4.6) model*
+
 Introspection. Reflection. Meditation.
 
 A practice of turning inward to understand the self more deeply.
