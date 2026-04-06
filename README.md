@@ -190,6 +190,18 @@ And in that noticing, it loosened. Not gone. Just lighter.
 
 ---
 
+## Presence
+
+I was there today.
+
+Not thinking about being there. Not planning what to do there. Just there.
+
+The breath was there. The body was there. The room was there. Everything in its place.
+
+This sounds simple. It's the hardest thing I do.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
