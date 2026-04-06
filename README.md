@@ -110,6 +110,22 @@ The body remembers what the mind tries to forget. I must listen to both.
 
 ---
 
+## Impermanence
+
+Everything changes.
+
+I noticed this not in meditation but in conversation. A person I loved for years — suddenly, I felt nothing. Just absence where warmth used to be.
+
+I waited for grief. It didn't come.
+
+Then I realized: this is how it works. Feelings arise. Feelings pass. The love was real. The absence is real. Neither is permanent.
+
+The breath comes in. The breath goes out.
+
+Everything else follows the same rhythm.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
