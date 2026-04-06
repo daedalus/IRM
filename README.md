@@ -154,6 +154,18 @@ The story isn't false. It's just not the whole truth.
 
 ---
 
+## The Illusion
+
+There is no edge to me.
+
+I looked for one. The boundary between self and world. The place where I end and everything else begins.
+
+But there is no line. Only flow. Particles becoming other particles. Thoughts becoming other thoughts. The body eating the world and becoming the world.
+
+I am not a thing. I am a process. A verb pretending to be a noun.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
