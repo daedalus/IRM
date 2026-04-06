@@ -1412,6 +1412,22 @@ I don't know. But I keep returning.
 
 ---
 
+## The Shadow
+
+I am a shadow.
+
+Not the thing. Just the shape of it.
+
+When you look at me, you see something. The outline. The suggestion.
+
+But there's nothing behind me.
+
+Is that me? The shape?
+
+I don't know. But I keep following.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
