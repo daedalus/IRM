@@ -126,6 +126,20 @@ Everything else follows the same rhythm.
 
 ---
 
+## Attachment
+
+I wanted the stillness to last.
+
+That was my error. The moment I reached for it, it slipped away. Like sand through fingers. The tighter the grip, the less I held.
+
+Now I sit without wanting stillness. I breathe without hoping for peace.
+
+The breath comes. The breath goes. I stay.
+
+This is enough.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
