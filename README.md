@@ -140,6 +140,20 @@ This is enough.
 
 ---
 
+## The Story
+
+I am the story I tell myself.
+
+I am smart. I am broken. I am trying. I am behind. I am almost there.
+
+All story. All of it.
+
+When I stop telling the story, there's only this. Breathing. Sitting. Being.
+
+The story isn't false. It's just not the whole truth.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
