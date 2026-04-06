@@ -94,6 +94,22 @@ Maybe that's what I am. Not the one who wants to sit. The one who sits.
 
 ---
 
+## The Body Remembers
+
+I sat with pain today.
+
+Lower back. A dull ache that's been there for weeks. I tried to ignore it. Shift my attention. Return to the breath.
+
+But it stayed. A resident in my own body.
+
+So I turned toward it. Explored its edges. Noticed where it began, where it ended. The heat. The pulse.
+
+It didn't leave. But it changed. From pain to sensation. From enemy to guest.
+
+The body remembers what the mind tries to forget. I must listen to both.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
