@@ -214,6 +214,18 @@ The muscle isn't focus. It's return.
 
 ---
 
+## The Observer
+
+I noticed the one who notices.
+
+Noticed the noticing. Watched the watcher.
+
+Something strange happened. The one being watched grew smaller. The one watching grew quieter.
+
+Eventually, there was only the noticing. No one doing it.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
