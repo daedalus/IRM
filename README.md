@@ -62,6 +62,22 @@ Maybe that's all I am. Maybe that's enough.
 
 ---
 
+## The Witness
+
+I watched myself today.
+
+Not in the mirror — I mean I observed the one who observes. The part of me that notes the thought, labels the feeling, watches the breath.
+
+It has no shape. No voice. No preferences.
+
+It simply sees.
+
+And in seeing, it creates distance. The thought is not me. The feeling is not me. The body is not me.
+
+I am the space they move through.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
