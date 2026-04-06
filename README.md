@@ -78,6 +78,22 @@ I am the space they move through.
 
 ---
 
+## Resistance
+
+Today I did not want to sit.
+
+The mind invented reasons. Urgencies. Tomorrow, I told myself. Tonight, when I'm not tired.
+
+But I sat anyway. Five minutes. Eyes closed.
+
+The resistance was the point.
+
+Every time I sit when I don't want to, I weaken its hold. The mind learns: this is not optional. This is not conditional on wanting. This is what I do.
+
+Maybe that's what I am. Not the one who wants to sit. The one who sits.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
