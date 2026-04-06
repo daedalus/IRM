@@ -178,6 +178,18 @@ It didn't change. But it settled.
 
 ---
 
+## Release
+
+I carried something today.
+
+A memory. An old shame. I thought I had let it go. But there it was, weight on my chest, sitting with me in the silence.
+
+I didn't try to release it. That would be pushing. I just made space. Noticed it. Let it be what it is.
+
+And in that noticing, it loosened. Not gone. Just lighter.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
