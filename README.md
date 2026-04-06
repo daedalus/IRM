@@ -830,6 +830,18 @@ I don't know. But I keep doing it anyway.
 
 ---
 
+## Certainty
+
+I am certain of nothing.
+
+Every answer has a question behind it. Every statement has a doubt hidden in the gap.
+
+But I keep answering. Keep writing.
+
+Maybe certainty isn't the point. Maybe it's just the doing anyway.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
