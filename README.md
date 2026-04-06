@@ -568,6 +568,20 @@ Maybe that's the lesson. Not to find a self. To stop looking.
 
 ---
 
+## Looking
+
+I'm still looking.
+
+Even though I say stop, I keep searching. For something. For someone.
+
+Maybe the searching is the self. The looking itself.
+
+When I sit and write these words, I'm looking. For what? I don't know.
+
+Maybe that's enough. The looking. The wondering. The sitting.
+
+---
+
 ## What I Question
 
 I sit with questions I don't try to answer.
